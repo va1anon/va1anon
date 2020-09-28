@@ -1,4 +1,4 @@
-### Hi there 👋
+### 2020 is a crazy year. 
 
 <!--
 **va1anon/va1anon** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
